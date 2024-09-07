@@ -1,5 +1,5 @@
 # Mujaheed Razack
-https://github.com/Mujaheed007/Mujaheed007.github.io/blob/main/images/profile.png
+
 **Network Technician/Engineer**  
 **IT Auditing and Cybersecurity Student**  
 **Certifications: A+, Network+**  
