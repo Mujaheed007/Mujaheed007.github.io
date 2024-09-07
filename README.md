@@ -1,5 +1,4 @@
 # Mujaheed Razack
-![profile](https://github.com/user-attachments/assets/5a43a09c-3a8f-4fd1-86f6-22e52ba8ab55)
 
 **Network Technician/Engineer**  
 **IT Auditing and Cybersecurity Student**  
